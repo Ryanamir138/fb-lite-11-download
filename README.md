@@ -8,6 +8,12 @@ Scroll Down and There is a Download Link For FB Lite 11 Updated Apps Simply Clic
 
 ## Fb Lite 11 Download Link
 <h1 align=center>
-  
-[![Download](https://img.shields.io/badge/➤Download_Now-ff0000?style=for-the-badge)](https://reyandilawar.blogspot.com/2016/07/11-facebook-lite-apps-in-0ne-android.html)
 
+[![Download](https://custom-icon-badges.demolab.com/badge/-download-ff0000?style=for-the-badge&logo=download&logoColor=white)](https://reyandilawar.blogspot.com/2016/07/11-facebook-lite-apps-in-0ne-android.html)
+
+## Join Me On Social Media
+<h1 align=center>
+  
+[![Follow](https://custom-icon-badges.demolab.com/badge/-instagram-F30183?style=for-the-badge&logo=instagram&logoColor=white)](https://instagram.com/reyan_dilawar)
+
+[![Follow](https://custom-icon-badges.demolab.com/badge/-facebook-0B5ED7?style=for-the-badge&logo=facebook&logoColor=white)](https://facebook.com/reyandilawar)
