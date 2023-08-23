@@ -6,9 +6,8 @@ Download and Install Now in Your Android Mobile For Free - FB Lite 11 Apps Apk F
 
 Scroll Down and There is a Download Link For FB Lite 11 Updated Apps Simply Click and You Navigate The Website and Download it.
 
-  
 ## Fb Lite 11 Download Link
 <h1 align=center>
-
-[➤ Download](https://reyandilawar.blogspot.com/2016/07/11-facebook-lite-apps-in-0ne-android.html)
+  
+[![Download](https://img.shields.io/badge/➤Download_Now-ff0000?style=for-the-badge)](https://reyandilawar.blogspot.com/2016/07/11-facebook-lite-apps-in-0ne-android.html)
 
